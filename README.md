@@ -1,0 +1,2 @@
+# fusion
+homer é gay
