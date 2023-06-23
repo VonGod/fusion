@@ -1,2 +1,1 @@
-# fusion
-homer é gay
+# BOT DE JAVA PARA MINECRAFT E AFINS
